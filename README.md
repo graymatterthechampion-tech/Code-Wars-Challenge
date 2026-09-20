@@ -1,0 +1,1 @@
+https://www.codewars.com/users/graymatterthechampion-tech/completed_solutions
